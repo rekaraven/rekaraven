@@ -1,3 +1,6 @@
+
+![tumblr_44aa295f825f094cecb834f007138343_81ea041c_250](https://github.com/user-attachments/assets/9ee8e545-f598-430c-8b28-ee8eccccdd70)
+
 call me: réka / réki / rékci / R
 
 *"the...folk person" (draws 90% folk costume, listens to folk songs & folk rock 24/7, obsessed with folklore)*
