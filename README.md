@@ -1,19 +1,6 @@
 
 ![tumblr_44aa295f825f094cecb834f007138343_81ea041c_250](https://github.com/user-attachments/assets/9ee8e545-f598-430c-8b28-ee8eccccdd70)
 
-call me: réka / réki / rékci / R
-
-*"the...folk person" (draws 90% folk costume, listens to folk songs & folk rock 24/7, obsessed with folklore)*
-
-i'd prefer it if you write in english, it's the easiest for me to chat in + i want to be perfect in it because i write all stories in this, but know i'm really interested in a bunch of **slavic languages** so if you write in that i may understand a bunch!
-
-interests: history (particularly medieval and **early modern**), geography, **philosophy**, literature, social studies, biology/nature, typology, **psychology**, arts (**writing, drawing**, musicals etc), mythology, religions
-
-fandoms (sort of, i don't make any fanart or view fan content though): undertale, deltarune, **south park**, countryballs, **MBTI & more**
-
-if you ever read this and decide to talk with me, i'd appreciate it if you let me know first your own boundaries, all the time i'm genuinely concerned of accidentally pissing someone off
-
----------------------------
 
 i'm very often **AFK**, whisper if you wanna say something!
 
