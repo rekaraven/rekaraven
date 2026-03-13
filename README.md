@@ -3,7 +3,7 @@
 
 info in links! 
 
-[carrd](https://rekaraven.carrd.co/) - [main straw ⚔️](https://lostinthepuszta.straw.page/) 
+[carrd 🐦‍⬛](https://rekaraven.carrd.co/) - [main straw ⚔️](https://lostinthepuszta.straw.page/) 
 
 [straw 1 🦅](https://albicilla.straw.page/) - [straw 2 ⛰️](https://lostintransylvania.straw.page/)
 
