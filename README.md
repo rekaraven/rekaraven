@@ -1,5 +1,5 @@
 ![yes](https://i.postimg.cc/BnZMHbWD/magyar.png)
-![yes](https://i.postimg.cc/BZD9JH8p/Untitled-Artwork-19-copy-4.png) 
+![yes](https://i.postimg.cc/Qtc3YT1J/Untitled-Artwork-19-copy-4-Photoroom.png)
 
 info in links! 
 
