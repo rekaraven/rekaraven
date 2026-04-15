@@ -1,4 +1,3 @@
-
-**[carrd](https://rekaraven.carrd.co/) - [straw](http://kosciuszkofanpage.straw.page/)** - [straw2](https://lostinthepuszta.straw.page/)
-
+i need to make this more aesthetic 
+wip
 
